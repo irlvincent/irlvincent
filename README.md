@@ -8,4 +8,4 @@ need help coding? ![me asf](https://yokai.crd.co/assets/images/gallery11/733f463
 
 ![](https://biscuit.crd.co/assets/images/gallery03/a9091078.gif?v=532faf5f) . . . ![](https://biscuit.crd.co/assets/images/gallery78/0a891d43.gif?v=532faf5f)![](https://biscuit.crd.co/assets/images/gallery77/ba96c3da.gif?v=532faf5f)![](https://biscuit.crd.co/assets/images/gallery53/54078db7.gif?v=532faf5f)
 
-![](https://biscuit.crd.co/assets/images/gallery67/5c2c1e10.gif?v=532faf5f)![](https://biscuit.crd.co/assets/images/gallery67/d1f0cc22.gif?v=532faf5f)![](https://biscuit2.crd.co/assets/images/gallery23/a85099c1.gif?v=f54c32ff)![](https://biscuit2.crd.co/assets/images/gallery23/6402a895.jpg?v=f54c32ff)![](https://biscuit2.crd.co/assets/images/gallery07/61e3079a.gif?v=f54c32ff)
+![](https://biscuit.crd.co/assets/images/gallery67/5c2c1e10.gif?v=532faf5f)![](https://biscuit.crd.co/assets/images/gallery67/d1f0cc22.gif?v=532faf5f)![](https://biscuit2.crd.co/assets/images/gallery23/a85099c1.gif?v=f54c32ff)![](https://biscuit2.crd.co/assets/images/gallery23/6402a895.jpg?v=f54c32ff)![](https://biscuit2.crd.co/assets/images/gallery07/1f7c077f.gif?v=f54c32ff)
