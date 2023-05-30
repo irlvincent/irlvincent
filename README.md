@@ -5,3 +5,5 @@ hey loser check out my links too! ![lol](https://yokai.crd.co/assets/images/gall
 ![silly image](https://i.pinimg.com/564x/83/08/67/8308670fbdad905eb696d7ab0b4e9e7d.jpg)
 
 need help coding? ![me asf](https://yokai.crd.co/assets/images/gallery11/733f463b.gif?v=b4df531c) dm me on discord for a welcome image like this. . !!
+
+![](https://biscuit.crd.co/assets/images/gallery78/0a891d43.gif?v=532faf5f)![](https://biscuit.crd.co/assets/images/gallery77/ba96c3da.gif?v=532faf5f)![](https://biscuit.crd.co/assets/images/gallery53/54078db7.gif?v=532faf5f)
