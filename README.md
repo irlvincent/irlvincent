@@ -2,4 +2,4 @@
 check out my links (○｀ 3′○) and have fun xoxo
 
 
-![silly image](https://i.pinimg.com/originals/7a/90/e4/7a90e4b64d18cdf3547408f7078366d6.gif)
+![silly image](https://i.pinimg.com/564x/83/08/67/8308670fbdad905eb696d7ab0b4e9e7d.jpg)
